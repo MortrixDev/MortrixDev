@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MortrixDev
+- 👀 I’m interested in webdevelopment
+- 📚 I’m currently learning ALL THE STUFF
