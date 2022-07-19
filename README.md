@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @MortrixDev
-- 👀 I’m interested in web development
+- 👀 I’m interested in MANY THINGS
 - 📚 I’m currently learning ALL THE STUFF
